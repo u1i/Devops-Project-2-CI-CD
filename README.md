@@ -31,14 +31,14 @@ Lets Enjoy
     - [How To Defend Yourself in Boxing](https://youtu.be/SnsrDGvtAQM)
       
    
- - **slow down videos of boxing highlightsl**
+ - **slowed down videos of boxing highlightsl**
     
     
    - [Roy Jones Jr - Super Slow Motion boxing](https://youtu.be/PuUcGwJg_h0)
    - [Mike Tyson - In Slow Motion](https://youtu.be/BVSn6rjspb0)
    
    
- - **Techniques breakdowb**
+ - **Techniques breakdown**
  
     - [PacMan: Angles and Traps](https://youtu.be/vjVN4YsRIo0)
     
