@@ -22,10 +22,10 @@ Lets Enjoy
   - ** Basic boxing**
 
 
-    - [Boxing Basics numbers] (https://youtu.be/o9qPlLLGv6k)
+    - [Boxing Basics numbers](https://youtu.be/o9qPlLLGv6k)
   
   
-    - [Improve Your Head Movement For Boxing] (https://youtu.be/d6XH6APJ4ww)
+    - [Improve Your Head Movement For Boxing](https://youtu.be/d6XH6APJ4ww)
     
     
     - [How To Defend Yourself in Boxing](https://youtu.be/SnsrDGvtAQM)
