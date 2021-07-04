@@ -22,10 +22,10 @@ Lets Enjoy
   - ** Basic boxing**
 
 
-    - [Boxing Basics] (https://www.youtube.com/watch?v=BA_c3bGQXlQ)
+    - [Boxing Basics numbers] (https://youtu.be/o9qPlLLGv6k)
   
   
-    - [Improve Your Head Movement For Boxing | 3 Exercises](https://youtu.be/d6XH6APJ4ww)
+    - [Improve Your Head Movement For Boxing] (https://youtu.be/d6XH6APJ4ww)
     
     
     - [How To Defend Yourself in Boxing](https://youtu.be/SnsrDGvtAQM)
@@ -40,7 +40,7 @@ Lets Enjoy
    
  - **Techniques breakdowb**
  
-    - [PacMan: Angles and Traps | Boxing Technique Breakdown | Film Study |](https://youtu.be/vjVN4YsRIo0)
+    - [PacMan: Angles and Traps](https://youtu.be/vjVN4YsRIo0)
     
     
     
